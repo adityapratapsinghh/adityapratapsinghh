@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **contact@adityapratapsingh.co.in**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1bK5rGb9yUQcfofSq9LorQBTuMQRdc0MM/view?usp=sharing](https://drive.google.com/file/d/1bK5rGb9yUQcfofSq9LorQBTuMQRdc0MM/view?usp=sharing)
+- 📄 Know about my experiences [See my Resume](https://drive.google.com/file/d/1bK5rGb9yUQcfofSq9LorQBTuMQRdc0MM/view?usp=sharing)
 
 - ⚡ Fun fact **I am a Gamer too**
 
