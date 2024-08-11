@@ -3,7 +3,7 @@
 
 - 🌱 I’m currently learning **iOS Development**
 
-- 👨‍💻 All of my projects are available at [adityapratapsingh.co.in](adityapratapsingh.co.in)
+- 👨‍💻 All of my projects are available at [adityapratapsingh.co.in](https://adityapratapsingh.co.in)
 
 - 💬 Ask me about **SwiftUI,Swift,UIKit,Xcode,iOS App devlopment,HTML,CSS**
 
